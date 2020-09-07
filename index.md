@@ -1,6 +1,6 @@
-# MasterThyself.InnerINetworkSecurity welcomes all.
+# Master Thyself 
 
-The first line of defense in regards to all human relations is protecting the Sacred Inner I. Here now, is where inner peace originates. Here we are able to operate from the pure field of potential or the foundation of the universe. What better security is there than the Pure Potential of The Universe?
+The first line of defense in regards to all human relations is protecting the Sacred Inner I. Here now, is where inner peace originates. Here we are able to operate from the pure field of potential or the foundation of the universe. What better security is there than the Pure Potential of The Universal All Seeing I.
 
 Master Thyself, and Inner I Network Security firewall will incenerate all discord. 
 
