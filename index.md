@@ -1,6 +1,6 @@
 # Master Thyself 
 
-The first line of defense in regards to all human relations is protecting the Sacred Inner I. Here now in silence/stillness, is where inner peace originates. Here from this stillness we are able to operate as the pure field of potential and the foundations of the universe. There is no greater security than The Creator of The Code being on your side.
+The first line of defense in regards to all human relations is Defending the Sacred Inner I, the Subtle Essecnce within. Here now in silence/stillness, is where inner peace dwells. Here from this stillness we are able to operate as the pure field of potential becoming the foundations of the universe. Here we can choose free will to align with The Higher Will or our selfish will. Self-discipline is the best security.
 
 Master Thyself, and the Inner I will transmute all dross. 
 
